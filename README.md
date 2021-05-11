@@ -1,2 +1,2 @@
 # My-Repository
-iijijijijijijijijijiijijijjijijijijiijijijijjij
+Just another repository
